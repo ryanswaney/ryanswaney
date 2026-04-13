@@ -52,15 +52,19 @@ Working as both a developer and designer has given me a deep sense of empathy fo
 
 ## Experience
 
+### Sabbatical
+
+Fall 2025
+
 ### Senior Graphic Designer and Web Developer
 
 United Nations Sustainable Development Solutions Network  
-July 2016 - July 2025
+2016 - 2025
 
 ### Graphic Designer and Web Developer
 
 The Earth Institute, Columbia University  
-March 2012 - July 2016
+2012 - 016
 
 ### Freelance Graphic Designer and Web Developer
 
