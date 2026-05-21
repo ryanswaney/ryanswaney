@@ -64,7 +64,7 @@ United Nations Sustainable Development Solutions Network
 ### Graphic Designer and Web Developer
 
 The Earth Institute, Columbia University  
-2012 - 016
+2012 - 2016
 
 ### Freelance Graphic Designer and Web Developer
 
