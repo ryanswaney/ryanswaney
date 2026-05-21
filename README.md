@@ -69,9 +69,4 @@ The Earth Institute, Columbia University
 ### Freelance Graphic Designer and Web Developer
 
 Freelance  
-2008 - 2017
-
-### Web Developer
-
-FireBox Studios  
-2004 - 2008
+2004 - 2017
